@@ -1,6 +1,4 @@
 # Agave-americana_Aono-Ryuzetsuran_Tokyo
-CC-BY-4.0 - RuinDig/Yuki Uchida 
-<div style="text-align: center;"><a href="https://creativecommons.org/licenses/by/4.0/deed.ja"><img src="https://user-images.githubusercontent.com/20723919/145936543-577c7705-90e2-4d56-ad5d-26b0fbcea02d.png" /></a></div>
 
 東京の日比谷公園で咲いていたアオノリュウゼツラン。【場所：東京都千代田区、日比谷公園】撮影時期：2019年8月2日
 
